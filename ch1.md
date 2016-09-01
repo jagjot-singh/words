@@ -1,8 +1,19 @@
 ## Ottawa
 
-Winter, February 2016. It's dark as I pull off the highway and into the city of Ottawa. My partener, B and I have driven five hours from Toronto to Ottawa, and will be working here for a week. It's my first time to the city, and I feel the mild excitement I usually feel checking into a hotel in a city I have never been to. They've put us up in a four-star hotel in the St laurent area. It's an industrial area, not a beautiful place, but not ugly either. We've been to worse areas and stayed in some shady motels for this job, so we're in no position to complain. But occasian we've ended up in luxury hotels.
 
-Lying in bed Just one week, I can put my head down and do this. Exhausted, I fall asleep
+######February in Ontario, Canada.
+
+The sun set a couple hours ago. Our unnecessarily large and comfortable Chevy SUV, which all but takes the joy out of driving fast, is cruising down the off-ramp. We're pulling into Ottawa. Capital of Canada, where the Presidents live and senators play.  My partener--I will refer to him simply as B--and I have driven five hours from Toronto to Ottawa, to work here for one week. We are in the St laurent area, checking into an unimpressive four-star hotel. It's my first time to the city, and knowing that it will soon fade, I still feel the mild excitement of checking into a hotel in a new city. The hotel is in an industrial area, not a beautiful place, but not ugly either. Just very plain and Canadian. Box-buildings which with relative ease could be converted into airplane hangars, and well paved double-laned roads. Organized, functional, stamped perhaps just a bit too firmly onto the landscape. We've been to worse areas and stayed in motels for this job so in truth, we're in no position to complain. But on a couple rare occasians, when management couldn't find anything cheapers, we'd ended up in luxury hotels. That was enough us have hope each time.
+
+
+B and I both have love-hate relationship with this job. We hate the the actual work. Our manager war fired a couple months ago. So we're technically unmanaged, and have such sparse communication with the comapny that it usually just entails the place we're going, and usually we got this information the night before. So we're also not fond of anyone in the company. We're part of a sales campaign that's been ongoing for nearly the decade. As the guys in the field, we know the end is in sight. The market has become impressively saturated. And this is commission based job, so we're also startiing to hate the pay.
+
+What we both love is the travel, and Cannabis.
+
+And on this night, as we claim our beds and sides of the room, we realize we have only a couple grams of weed between us. B has a friend in Monteal, which is three hours away. So while we spice that night--spice is our code word for smoking marijuana--we decide that if it really came down to it, we'd go to Montreal. We were already plannig on catching a concert there at the end of the week, we don't complicate things by acknowledging the fact that we'd run out in at most a couple of days.
+
+
+I'm lying in bed Just one week, I can put my head down and do this. Exhausted, I fall asleep
 I got to know a few of the other guests staying there throughout the week.
 
 My car was usually parked by Wayne’s room. He was living at this hotel indefinitely,
