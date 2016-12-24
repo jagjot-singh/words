@@ -3,7 +3,7 @@
 
 I am at this cafe I sometimes eat at. Same dish every time. Eggplant on white rice, it's delicious the way the make it.
 
-Aappearence-wise I am an absoulte mess today. It is too cold for me to care. My hat barely covers protruding hair, but all is fair in the midst of a Toronto winter.
+Appearence-wise I am an absoulte mess today. It is too cold for me to care. My hat barely covers protruding hair, but all is fair in the midst of a Toronto winter.
 
 I watch that winter inflict it's glory now from the warmth and safety of a centrally heated building, through a large street-facing (Spadina Avenue in Chinatown) window I always sit facing. Soft soft snow coming down so hard at an angle. I can't even see the opposite end of the street. Occasionally someone passes, often sheilding their faces from some combination of wind and snow.
 
