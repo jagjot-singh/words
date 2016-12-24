@@ -1,4 +1,6 @@
 
+#That's Us
+
 I am at this cafe I sometimes eat at. Same dish every time. Eggplant on white rice, it's delicious the way the make it.
 
 Aappearence-wise I am an absoulte mess today. It is too cold for me to care. My hat barely covers protruding hair, but all is fair in the midst of a Toronto winter.
