@@ -96,11 +96,13 @@ I felt confused and pained by an injustice to which I felt I was the only witnes
 
 The same boy whom I had helped to labourously pull out an abandoned, mutilated golf cart from a ditch, with whom I had struggled to drag it home and had watched mesmerized as he turned it into a functional go-kart within two weeks using lawnmower and bicycle parts, that same kid is not seen fit to sit in a fifth grade classroom with me. 
 
-As an immigrant, I am aware already that I must understand living in a new house, in this new culture, this language, these rules, this country. And at all of those I was already trying and progressing.
+As an immigrant, I am aware already that I must understand living in a new house, in this new culture, this language, these rules, this country. And at all of those I am trying, and progressing.
 
-But I feel a new heaviness in the world now, as I begin to realize that I must also somehow learn undertand, and cope with, the small, private injustices of life. 
+But I feel a new heaviness in the world now, as the edge of the knowledge that those things are not enough starts to rub against my juvenile world-view. 
 
-While at school, even when J and I ran into each other during recess, we didn't talk much.
+I am realizing that I must also somehow learn undertand, and cope with the small, private injustices of a life. 
+
+While at school, even when J and I ran into each other during recess, we do not talk very much.
 
 *S'up?* 
 
