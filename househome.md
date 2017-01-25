@@ -96,9 +96,11 @@ I felt confused and pained by an injustice to which I felt I was the only witnes
 
 The same boy whom I had helped to labourously pull out an abandoned, mutilated golf cart from a ditch, with whom I had struggled to drag it home and had watched mesmerized as he turned it into a functional go-kart within two weeks using lawnmower and bicycle parts, that same kid is not seen fit to sit in a fifth grade classroom with me. 
 
-I, an immigrant trying already to understand this new culture, this language, and this country, am feeling the true weight of a world in which I must somehow undertand this as well. 
+As an immigrant, I am aware already that I must understand living in a new house, in this new culture, this language, these rules, this country. And at all of those I was already trying and progressing.
 
-While at school, even when we ran into each other during recess, we didn't talk much.
+But I feel a new heaviness in the world now, as I begin to realize that I must also somehow learn undertand, and cope with, the small, private injustices of life. 
+
+While at school, even when J and I ran into each other during recess, we didn't talk much.
 
 *S'up?* 
 
