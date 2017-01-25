@@ -104,8 +104,8 @@ I am realizing that I must also somehow learn undertand, and cope with the small
 
 While at school, even when J and I ran into each other during recess, we do not talk very much.
 
-*S'up?* 
+*"'S'up?"* 
 
-*You shook?*
+*"You shook?"*
 ***
 
