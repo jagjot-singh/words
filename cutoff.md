@@ -1,39 +1,66 @@
-When I wake up the world has lost all it's color, and the silence has a weight to it.
+I wake up feeling that the world has lost it's color. There is a weighted, mysterious silence in the room.
  
- I don't know what I'm waking up from, or where I am. 
+ I cannot recall what I am waking up from, nor where I am. 
 
-I'm in a bed. It's a hospital bed. Yes, we had stopped by the hospital, we were going to the circus. 
+In a bed, yes. It's a hospital bed. 
 
-But I cannot look forward to the circus at this moment, for a sense of nausea is quickly rising, and nothing makes sense. 
+Yes, I remember now. 
 
-The silence is so heavy. 
+We had stopped by the hospital, on our way to the circus. But that felt like a long time ago. It felt like yesterday.
 
-I try to make a sound, but my throat, along with the muscles of my abdomen, which feel strained and bruised, clench hard, as if in warning, telling me to shut up. Keep still.
+I remember asking my father if there would be elephants. 
 
-The shock of a trauma it has already gone through but I am only begenning to gain conscious awareness of now. 
+I think it must have been yesterday ...
 
-At the awareness of an unnatural tension in and around my groin, the nausea threatens to surface, a stronger warning this time. I dare not move my head.
+He had said there would be elephants.
 
-My hands do not heed the warning though. Intinctively, they explore, and as soon as they start, right beneath the bandaged area they touch, jolts of pain are sent to the rest of my body. 
+I cannot look forward to the circus at this moment though. I feel nauseated.
 
-I want to scream, but as I manage to tilt my head to the side, vomit escapes me instead. 
+The silence is so heavy. Nothing feels right, I don't know what's wrong.
 
-Nurses are here. The sobs merge into the dry heaves. I feel hands on me.
+I try to make a sound, any sound, but right away my throat, along with the muscles in my abdomen, which feel unfamiliar, strained, bruised, suddenly clench hard.
 
-They are done with me. I want to know what was done to me. But I cannot ask. I cannot speak.
+ A firm warning by the body, directed at me, the doer, doing things to it. 
 
-With short breaks during which I rinse my mouth with water and take pills meant to help with nausea, I continue throwing up for several hours. 
+ Telling me to keep silent, not move. 
+ 
+ Quiet. Still.
+
+The shock is of a trauma the body has been through, has memory of, but the mind only starting to gain a fuzzy awareness of. 
+
+And at the awareness of an unnatural, swollen tension in my groin, the nausea threatens to breach the surface. An even stronger warning now. I dare not move my head. I dare not make a sound. I would do anything to make it stop. 
+
+Hands often cannot heed warnings though. Intinctively mine reach to explore, and as soon as they start, right beneath the sticky wetness on a bandage they touch, sharp , electric, jolts of pain are unleashed outwards, screaming at and alongside the rest of the body. 
+
+I want to scream too, but I barely manage to tilt my head sideways before I begin vomitting, loudly. 
+
+Some people come, then some go.  I canot hear what they are saying over my sobs merging into dry heaves. 
+
+Kind hands caress my head.
+
+They are done with me, I know. I will be going home, I know.
+
+I want to know much about what exactly had been done, but for now I cannot ask anyone; I cannot even speak.
+
+Taking short breaks during which I rinse my mouth and take pills meant to help with nausea, I continue throwing up for several more hours. 
 
 I do not speak for the rest of that day. I do not ask questions. 
 
-For weeks, I sit on a stool, naked wasit-down, a tub of iodine mixed with warm water in front of me. When anyone approaches, I tell them to go away. They give me my space, and I give them silence. 
+For weeks afterwards, I sit on a stool, naked from the waist-down, a plastic tub of iodine mixed with warm water in front of me. This is to help me heal, they tell me. Whenever someone approaches, which they inevitably try for days, I quickly ask them to leave. To reaffirm my words, I go thorugh the pain of moving my healing station several times, tub, stool, bruised pride and all. Farther and farther away from the defacto area of congregation near the kitchen, farther into the vacant space of the yard. 
 
-I gently bathe the wound I do not have to courage to directly look at, but I can feel the pain, and see the blood on my hands. I try to wash away both. 
+The message is recieved. They begin making efforts to give me space, and I carry on sitting in an effortless silence. 
 
-I like it when it's sunny. The pain seems less when it's sunny, with a bit of a breeze.
+All my effort goes into gently bathing a wound I cannot muster the courage to directly look at, but I can feel the pain, and I can see the blood it leaves on my hands. I try to wash it all away. 
+
+When it's sunny, with a bit of a breeze, the pain seems much farther away than it actually is. I hear voices of friends playing nearby on those days, and even manage to smile, secretly. 
  
-Eyes closed, my hands wash the hurt, tenderly, carefully, making peace with the unknown.
+Eyes closed, hands touching hurt, tenderly, carefully, making peace with the unknown.
 
-Every couple of days, a doctor comes at looks at me while I look awayt. He changes the dressing. I say nothing. It becomes less painful each time, never more than the day that my father had lied to me about a circus, and had taken me to a hospital instead, for something I still do not understand. Do not want to understand. 
+Now and again, a doctor comes at looks at me looking away. He changes the dressing. I say nothing. 
 
-It would be a few more years before I'd ever hear the name of the procedure, after the wound had healed, was no longer fresh, after I had changed countries. Even after understanding it, the word 'circumcision' would forever fail to create a connection to my experience, the vivid memory, bitterly left behind, undescribed.
+He aks me how I feel every time. It probably hurts less he figures. I nod, but  I say nothing. 
+
+It did hurt less every day. Never more than the day that my father had told me about a circus, but then we'd had to stop off at the hospital do something, something I still do not understand. Do not want to understand. 
+
+It would be a few more years before I'd ever hear the name of the procedure, after the wound had healed, was no longer fresh, after I had changed countries. Even after understanding it, the word 'circumcision' would forever fail to create a connection to my experience, the vivid memory, carried with me, undescribed.
+
