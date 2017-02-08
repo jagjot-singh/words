@@ -60,7 +60,12 @@ Now and again, a doctor comes at looks at me looking away. He changes the dressi
 
 He aks me how I feel every time. It probably hurts less he figures. I nod, but  I say nothing. 
 
-It did hurt less every day. Never more than the day that my father had told me about a circus, but then we'd had to stop off at the hospital do something, something I still do not understand. Do not want to understand. 
+It did hurt less every day. Never more than the day that my father had told me about a circus, but then we'd had to stop off at the hospital do something, something I still do not understand, do not want to understand. 
 
-It would be a few more years before I'd ever hear the name of the procedure, after the wound had healed, was no longer fresh, after I had changed countries. Even after understanding it, the word 'circumcision' would forever fail to create a connection to my experience, the vivid memory, carried with me, undescribed.
+It will be a few years before I will ever hear the name of the procedure, too long after the wound had healed, after I've changed countries, for me to relate to it. 
 
+And though I will come to an understanding of it, the word 'circumcision' will forever fail to relatable to me. 
+
+My memory of the experience will remain vivid; and I will to carry it in a quiet solitude, undescribed. 
+
+It will be more than a decade later, before I can put it into words.
