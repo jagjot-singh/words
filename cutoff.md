@@ -4,21 +4,21 @@ I wake up feeling that the world has lost it's color. There is a weighted, myste
 
 In a bed, yes. It's a hospital bed. 
 
-Yes, I remember now. 
+Hospital. I remember now. 
 
-We had stopped by the hospital, on our way to the circus. But that felt like a long time ago. It felt like yesterday.
+We had stopped by the hospital, on our way to the circus. But that felt like a long time ago, like it had happened the day before.
 
-I remember asking my father if there would be elephants. 
+I remember that I had asked my father if there would be elephants. 
 
 I think it must have been yesterday ...
 
-He had said there would be elephants.
+He had quickly assured me that there would be elephants.
 
-I cannot look forward to the circus at this moment though. I feel nauseated.
+I cannot look forward to the circus at this moment though, as I feel nauseated.
 
-The silence is so heavy. Nothing feels right, I don't know what's wrong.
+Something feels so heavy. Nothing feels right. I don't know what's wrong.
 
-I try to make a sound, any sound, but right away my throat, along with the muscles in my abdomen, which feel unfamiliar, strained, bruised, suddenly clench hard.
+I try to make a sound, any sound, just for the sake of it, but right away my throat and abdomen clench hard.
 
  A firm warning by the body, directed at me, the doer, doing things to it. 
 
@@ -26,11 +26,13 @@ I try to make a sound, any sound, but right away my throat, along with the muscl
  
  Quiet. Still.
 
+The muscles in my abdomen feel unfamiliar, strained, as if they've been bruised.
+
 The shock is of a trauma the body has been through, has memory of, but the mind only starting to gain a fuzzy awareness of. 
 
-And at the awareness of an unnatural, swollen tension in my groin, the nausea threatens to breach the surface. An even stronger warning now. I dare not move my head. I dare not make a sound. I would do anything to make it stop. 
+I slowly gain awareness of an unnatural, swollen tension in my groin, and the nausea threatens to breach the surface. An even stronger warning now, and I know something is wrong there. I dare not lift my head. I dare not make a sound. Anything to keep the nausea at bay. 
 
-Hands often cannot heed warnings though. Intinctively mine reach to explore, and as soon as they start, right beneath the sticky wetness on a bandage they touch, sharp , electric, jolts of pain are unleashed outwards, screaming at and alongside the rest of the body. 
+Hands often cannot heed warnings though, and mine intinctively reach to explore. As soon as they start, right beneath the sticky wetness on a bandage where they touch, sharp , electric, pain spasms get unleashed outwards, screaming at and alongside the rest of the body. 
 
 I want to scream too, but I barely manage to tilt my head sideways before I begin vomitting, loudly. 
 
